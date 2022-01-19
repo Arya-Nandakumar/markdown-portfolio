@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+- Mom :sparkling_heart:
+- Astro :star:
+- One Direction :fire:
